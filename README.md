@@ -1,3 +1,4 @@
+LAUGHING AT YOUR SECURITY LOOOOOOOOOOOOOOL
 - Cracked SQLInjection Tool XDumpGo
 - Cracked Zebratic Mod Menu
 - Cracked Hyxer X (fortnite checker) garbage obfuscation.
