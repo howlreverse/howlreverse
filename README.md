@@ -1,5 +1,8 @@
-### Hi there 👋
-
+Cracked SQLInjection Tool XDumpGo
+Cracked Zebratic Mod Menu
+Cracked Hyxer X (fortnite checker) garbage obfuscation.
+Cracked Xtool V3 Multi tool
+Cracked every skidded ddos pannel nd multi tools with public accounts
 <!--
 **howlreverse/howlreverse** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
